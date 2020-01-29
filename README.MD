@@ -1,2 +1,1 @@
-"ù git����" 
-"���� push�� �� pull�ϱ�" 
+⋃뤠杩瓆쓀켢 ⊿경쀠灵獨쟑⃈쐠灵汬쟏뇢∠�dfdsfdsfsdfdsfdsfds
